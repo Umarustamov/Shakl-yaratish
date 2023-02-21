@@ -1,0 +1,1 @@
+# Shakl-yaratish
